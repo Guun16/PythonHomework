@@ -1,5 +1,1 @@
-# PythonHomework
-# PythonHomework
-# PythonHomework
-# PythonHomework
-# PythonHomework
+นาย ณรงค์ศักดิ์ จรุงพานิชเจริญ 6912732102
